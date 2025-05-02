@@ -1,0 +1,1 @@
+# Szintez-si-t-maszpontok
